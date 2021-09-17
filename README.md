@@ -1,1 +1,1 @@
-Cool stuff related to the steam deck!
+Random stuff related to the steam deck!
